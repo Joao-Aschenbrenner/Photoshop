@@ -1,8 +1,5 @@
-# Logos-Projetos
+# Projetos Photoshop
 
-**Logos criados para projetos !!**
+**Projetos criados no Photoshop !!**
 
 
-Edições para projetos!!
-
-Criando novas artes com *Photoshop!!*
